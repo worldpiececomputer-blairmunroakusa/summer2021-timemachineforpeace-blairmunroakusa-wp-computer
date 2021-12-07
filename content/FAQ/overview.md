@@ -18,11 +18,8 @@ Think of this like a choose-your-own-adventure conversational experience. Discus
 
 If some aspect of this FAQ or site contents pops out at you as not-quite-clear, or interesting enough to have a conversation about, come up with a simple question to guide the conversation. This helps me linearize the sprawling thing in my head. It really helps a lot.
 
-<div class="figure">
 
-![](/images/faq/faqMindmap1.jpg)
 
-</div>
 
 ^
 
@@ -30,11 +27,8 @@ These are pictures of a mindmap (armmap) outline for the FAQ (conversation) sect
 
 v
 
-<div class="figure">
 
-![](/images/faq/faqMindmap2.jpg)
 
-</div>
 
 <p><a href="mailto:timemachine@wp.computer?subject=I have a general question."><b>CLICK TO SUBMIT A QUESTION</b></a></p>
 

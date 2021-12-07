@@ -177,7 +177,7 @@ Whether or not the AGI singularity happens via electronic computers (quantum or 
 
 **~ Are you on drugs?**
 
-Sometimes. I engage in periods where I consume THC regularly, and this helps me make creative associations and vibe harder to my favorite music. I cannot sustain use however, because this makes my delusions unmanageable. At the moment, I am not consuming much THC at all. In the past I have struggled with abusing drugs, but that is no longer much of an issue (I subscribe to a recovery program called '<a href="https://www.smartrecovery.org" target="_default">SMART</a>', which I highly recommend). If, for the purpose of sponsorship or funding you would request I relinquish my right to privacy and submit to a drug test, I will happily do so for $130,000 ($30,000 toward taxes, the rest for some pocket change). It would be easier for all parties if you just have a candid conversation with me about this stuff instead.
+Sometimes. I engage in periods where I consume THC, and this helps me make creative associations and vibe harder to my favorite music. I cannot sustain use however, because this makes my delusions unmanageable. At the moment, I am not consuming much THC at all. If, for the purpose of sponsorship or funding you would request I relinquish my right to privacy and submit to a drug test, I will happily do so for $130,000 ($30,000 toward taxes, the rest for some pocket change). It would be easier for all parties if you just have a candid conversation with me about this stuff instead.
 
 .
 

@@ -329,7 +329,7 @@ Certainly. I am also delusional. But does it really matter? As far as I am conce
 
 **~ You are unwell.**
 
-I know. That's why I am asking for help.
+I know. I am asking for help.
 
 **~~~~~~~~~~~~~~~~~~~~~~~~~~~~**
 

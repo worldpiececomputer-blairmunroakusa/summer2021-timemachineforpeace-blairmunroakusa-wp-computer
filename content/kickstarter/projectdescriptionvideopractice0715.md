@@ -34,7 +34,6 @@ The script does not include much 'how' and 'what'.
 
 {{< youtube 8d1E0XDfVl0 >}}
 
-. Yes, I am gross.
 
 << TODO, proper content and presentation review >>
 
